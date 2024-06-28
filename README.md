@@ -1,2 +1,0 @@
-# Anarch
-DOWNLOAD NOW FOR FREE! WINDOWS &amp; LINUX
